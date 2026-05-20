@@ -50,7 +50,7 @@ Apple Music funciona como señal temprana y predictiva del éxito en Spotify, ya
 
 **Sintia Mamani**  
 Instructional Designer | Learning Experience Designer  
-Diplomatura en IA Aplicada - PUCP
+Laboratoria- Analisis de datos
 
 ---
 
